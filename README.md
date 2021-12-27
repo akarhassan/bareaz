@@ -1,2 +1,0 @@
-# bareaz
-akar
